@@ -6,7 +6,7 @@ Email Me 👉 ✉️ **ahimank2004@gmail.com** For Collaboration/Project or Anyt
 - 🔭 **I’m currently working on:** Bid Intelligence 
 - 🌱 **I’m currently learning:** Agentic Ai 
 - 👯 **I’m looking to collaborate on:** Agentic Ai projects || Automation
-- 🤔 **I’m looking for help with:** NA
+- 🤔 **I’m looking for help with:** Agentic Ai
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** ahimank2004@gmail.com, garghimank09@gmail.com,www.linkedin.com/in/himankgarg 
 - 😄 **Pronouns:** Himank Garg
